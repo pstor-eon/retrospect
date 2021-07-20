@@ -1,1 +1,1 @@
-
+#### &#10077; I'm going to write about my favorite stories and stories where I sometimes get strength by looking at me when I'm in a slump or having a hard time. If you are having a difficult time like me, I hope you can read this article once and work hard again. I will always pray for you to be happy. &#10078;	&#128079;
